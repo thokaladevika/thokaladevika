@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on programming
 - 🤔 I’m looking for help with Coding
 - 💬 Ask me about Anything
-- 📫 How to reach me devikathokala
+- 📫 Drop a mail to [devikathokala@gmail.com](devikathokala@gmail.com) for contact me
 - 😄 Pronouns Baby
 
 
